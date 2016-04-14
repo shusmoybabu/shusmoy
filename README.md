@@ -1,0 +1,2 @@
+# shusmoy
+for palki templete
